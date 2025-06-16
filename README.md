@@ -1,0 +1,2 @@
+Tentang Kami
+UMKarya adalah platform digital yang dirancang untuk menampilkan dan memperkenalkan UMKM lokal Indonesia secara lebih kreatif dan profesional. Kami percaya bahwa setiap usaha kecil punya cerita dan potensi besar — dan UMKarya hadir untuk menjadi panggungnya. Lewat galeri produk, kisah inspiratif, dan edukasi sederhana, kami ingin membantu UMKM naik kelas dan lebih dikenal oleh masyarakat luas. 
